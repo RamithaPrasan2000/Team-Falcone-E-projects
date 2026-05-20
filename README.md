@@ -55,6 +55,10 @@ I used carbon fiber as the material and utilized the vacuum infusion manufacturi
 
 
 <img src="https://github.com/user-attachments/assets/4cec4139-b1fa-4317-9316-a2ad1ac235e0" width="400" alt="WhatsApp Image 2025-03-05 at 10 15 57 AM">
+<img  src="https://github.com/user-attachments/assets/dc32e48d-476d-43fd-9469-4f7530c5570f" width="400"  alt="_MG_5658 - Copy">
+<img  src="https://github.com/user-attachments/assets/6893f132-6b52-4e84-bf23-cace4c65aebe"  width="400" alt="_MG_5665 - Copy">
+
+
 
 
 
